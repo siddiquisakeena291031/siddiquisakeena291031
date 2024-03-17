@@ -11,7 +11,7 @@
 
 - 👨‍💻 All of my projects are available at [ Github Repo ](https://github.com/siddiquisakeena291031?tab=repositories)
 
-- 📫 How to reach me E-mail ID -  **er.sakeenasiddiqui1031@gmail.com** Contact No - **++918957150640-**
+- 📫 How to reach me E-mail ID -  **er.sakeenasiddiqui1031@gmail.com**
 
 - 📄 Know about my experiences (3.5 Years as E-Commerce Software Developer).
 
